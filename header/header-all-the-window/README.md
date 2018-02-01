@@ -1,0 +1,1 @@
+nag³ówek-na-ca³e-okno

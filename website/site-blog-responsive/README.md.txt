@@ -1,0 +1,1 @@
+responsywna strona bloga

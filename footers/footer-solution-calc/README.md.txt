@@ -1,0 +1,1 @@
+klejaca-stopka-rozwiazanie calc
